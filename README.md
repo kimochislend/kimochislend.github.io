@@ -1,1 +1,0 @@
-# kimochislend.github.io
